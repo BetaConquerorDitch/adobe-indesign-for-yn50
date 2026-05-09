@@ -1,4 +1,4 @@
-
+Adobe InDesign for macOS custom Filter - gradient maps and cloud sync offers the most advanced Adobe InDesign for macOS filter, with gradient maps and cloud sync. Ideal for
 
 
 
